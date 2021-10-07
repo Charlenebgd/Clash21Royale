@@ -1,4 +1,4 @@
-【Clash Royale Online Hack 】 Clash Royale Hack Generator 2021【Bg^$uet 】
+【Clash Royale Online Hack 】 Clash Royale Hack Generator 2021【Bg^$u65 】
 ==============================================================================
 UPDATED: [OCTOBER 20, 2021] {ONLINEUSERS:7834}
 
